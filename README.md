@@ -8,6 +8,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with Full time Job in Data Science
 - 💬 Ask me about Anything
 - 📫 How to reach me: hit me on [linkedin](https://www.linkedin.com/in/hinakoushar-tatakoti-9098a8a2/)
-- 😄 Pronouns: she/her
+- 😄 Pronouns: she/Her
 - ⚡ Fun fact: I'm half way
--->
+
